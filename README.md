@@ -1,4 +1,4 @@
 # motex
-Some times ago I startet to interest in programing. 
-It makes me a lot of fun and that why I would lie to change my job.
-I know I have a lot of work ahead of me, but I think that it is good for my development. I would like to change the industry in which I work.
+Some time ago I started to be interested in programing. 
+It gives me a lot of fun and that is why I would like to change my job into programming.
+I am awere I have a lot of work ahead of me, so that is why I am looking for suitable coding course.  
